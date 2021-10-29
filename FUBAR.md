@@ -15,7 +15,7 @@ She drops him off at band practice.
 
 
 
-What did yoda say the first time he saw himeself in 4k?
+What did yoda say the 1st time he saw himself in 4k?
 
 HDMI.
 
