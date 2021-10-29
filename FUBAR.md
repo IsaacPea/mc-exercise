@@ -15,9 +15,9 @@ She drops him off at band practice.
 
 
 
-What did yoda say the first time he saw himeself in 4k?
+What did Yoda say the first time he saw himself in four-k? 
 
-HDMI.
+HDMI. Who types 4K like that?
 
 
 Why do gorillas have big fingers?
