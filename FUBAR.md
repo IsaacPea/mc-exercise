@@ -4,7 +4,9 @@ What's E.T. short for?
 Cause he has tiny legs.
 
 
+How did Harry Potter make it down the hill?
 
+Running. Jk rowling.
 
 
 What does a stripper do with her asshole before her shift?
