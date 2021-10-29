@@ -15,9 +15,9 @@ She drops him off at band practice.
 
 
 
-What did Yoda say the first time he saw himself in four-k? 
+What did yoda say the 1st time he saw himself in 4k?
 
-HDMI. Who types 4K like that?
+HDMI. 
 
 
 Why do gorillas have big fingers?
@@ -30,3 +30,6 @@ What is the worst thing willy nelson can say to you after you give him a bj?
 I'm not willy nelson.
 
 
+What's brown and rhymes with snoop?
+
+Dr. dre.
