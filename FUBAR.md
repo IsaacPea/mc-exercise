@@ -28,3 +28,6 @@ What is the worst thing willy nelson can say to you after you give him a bj?
 I'm not willy nelson.
 
 
+What's brown and rhymes with snoop?
+
+Dr. dre.
